@@ -1,0 +1,1 @@
+# C-Dilinde-Oto-galeri-konsol-uygulamas-
